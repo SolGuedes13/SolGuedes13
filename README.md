@@ -1,4 +1,4 @@
-Olá, sou a @SolGuedes13
+Olá, sou @SolGuedes13
   
 Professora de História e Tecnologia e Inovação
 

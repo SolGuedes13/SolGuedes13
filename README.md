@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @SolGuedes13
-- 
-- Professora de História e Tecnologia e Inovação
-- 
+Olá, sou a @SolGuedes13
+  
+Professora de História e Tecnologia e Inovação
+
 EE Jeremias de Paula Eduardo - Monte Alto
 
 
